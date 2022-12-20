@@ -1,3 +1,0 @@
-# tetii
-
-meu cu
